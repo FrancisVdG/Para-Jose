@@ -6,3 +6,5 @@ Te tenemos mucho aprecio y te agradecemos las cosas que nos enseñas, sobre todo
 Y ya para terminar, como dijo Rajoy: "Muchas tardes y buenas gracias. Feliz halloween y próspero año 2007" Y a recuperar Gibraltar!
 Un fuerte abrazo de tus alumnos "favoritos",
 Ceci, Miguel ª., y Francis
+
+![image](https://github.com/FrancisVdG/Para-Jose/assets/145658459/4b33da2a-4e91-4062-9a24-8ac29d953eea)
