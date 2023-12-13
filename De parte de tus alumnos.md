@@ -1,4 +1,4 @@
-##HOLA MUNDO
+# HOLA MUNDO
 
 Lo primero de todo, ¿Cómo están los máquinas?
 Segundo, gracias por ser un profesor con el que se puede hablar, amigable y que nos hace sentir cómodos en clase, aunque a veces parezca que no prestamos atención.
